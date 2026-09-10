@@ -1,1 +1,1 @@
-# KHMT2411065_NGUY-N-NH-KHANG_
+# KHMT2411065_NguyenNhiKhang_casestudy1
